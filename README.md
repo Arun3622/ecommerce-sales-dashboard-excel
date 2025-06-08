@@ -36,7 +36,9 @@ Tailored to help ecommerce businesses:
 
 ## 🌐 Connect with Me
 
-💼 [LinkedIn Profile]([https://lnkd.in/dHNqTZ6X](https://www.linkedin.com/in/arun-prajapati-86b95b277/))
+💼 [LinkedIn Profile]
+
+[https://lnkd.in/dHNqTZ6X](https://www.linkedin.com/in/arun-prajapati-86b95b277/)
 
 ---
 
